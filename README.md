@@ -6,14 +6,16 @@ We have a lot of work to do today.
 - Project Brainstorm
 - Final Portfolio
 - Discussion Post for 350
-- Study for Psych Midterm 
-- Medical Anthropology Lecture 
+- Study for Psych Midterm
+- Medical Anthropology Lecture
 - Info 201 Office Hours
 
 We will make sure we get it all done by:
 - Writing a Schedule Down in Our Planners
-- Staying on Task 
-- Putting our Phones Away in Our Backpacks
+- Staying on Task
+- Putting our Phones Away for the whole day
 
 Tasks Done So Far:
 - Study for Psych Midterm 
+
+
