@@ -13,4 +13,4 @@ We have a lot of work to do today.
 We will make sure we get it all done by:
 - Writing a Schedule Down in Our Planners
 - Staying on Task 
-- Putting our Phones Away 
+- Putting our Phones Away in Our Backpacks
